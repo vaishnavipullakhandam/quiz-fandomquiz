@@ -1,3 +1,3 @@
 # how well do you know Brooklyn Nine-Nine
 
-this a quiz which will test your knowledge about the sitcom Brooklyn Nine-Nine. check the link in the about section to play! have fun playing !
+Brooklyn 99 is all about a crew of detectives trying to spot the smallest, most important facts to solve serious crimes.this quiz will test your knowledge about the sitcom ! have fun playing!
